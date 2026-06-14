@@ -1,1 +1,1 @@
-# Q94
+Multi-omics Investigation of Environmental Pollutants and Genome Sequencing of Colorectal this is the title of my doctoral dissertation I want to know the research that did the same work as well as the weaknesses and strengths, knowing that I work with NGS , gen expression + sequencing technology# Q94
